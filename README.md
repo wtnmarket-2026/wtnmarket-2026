@@ -15,7 +15,7 @@
 
 What set it apart was its regional character. While many darknet markets aimed for an international audience, WTN built its identity around a specifically Canadian community.
 
-## 🇨🇦 A Marketplace With a Local Identity
+## We The North With a Local Identity
 
 The name **We The North** was central to the platform's branding.
 
